@@ -18,7 +18,7 @@ I'm an aspiring **AI/ML enthusiast** and a **C++ programmer** currently studying
 
 ## 📫 Let's Connect!
 - **LinkedIn:** [Aditya Jaiswal](https://www.linkedin.com/in/aditya-jaiswal-931993324/)
-- **Email:** adityajaiswal24may@gmail.com
+- **Email:** adityajaiswal240505@gmail.com
 
 _Always excited to collaborate and learn together! 🚀_
 
